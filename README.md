@@ -1,1 +1,4 @@
-# 20170302GEO4012
+# Birk Jakob Slipersæter
+
+Jeg er masterstudent ved UiO. 
+
